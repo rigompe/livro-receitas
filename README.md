@@ -3,7 +3,8 @@
 Olá! Bem vindo ao nosso livro de receitas :wave:
 
 - Strogonoff de cogumelo 🍽
-- Pavê
+- Pavê :d;]
+- Bolo de cenoura :cake:
 
 
 
